@@ -1,1 +1,1 @@
-Rock on 1050!
+Rock on 700!
