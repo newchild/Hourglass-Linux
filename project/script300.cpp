@@ -1,1 +1,1 @@
-Rock on 600!
+Rock on 300!
