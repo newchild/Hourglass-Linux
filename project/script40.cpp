@@ -1,1 +1,1 @@
-Rock on 80!
+Rock on 40!
