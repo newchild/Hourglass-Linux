@@ -1,1 +1,1 @@
-Rock on 70!
+Rock on 35!
