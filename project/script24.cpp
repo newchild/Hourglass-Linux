@@ -1,1 +1,1 @@
-Rock on 48!
+Rock on 24!
