@@ -1,1 +1,1 @@
-Rock on 40!
+Rock on 30!
